@@ -10,9 +10,13 @@ Or we can use these questions to formulate a future event instead and give ourse
 
 #Start
 Discussed previous show was a budget of $300
+
 What was the head count?
+
 How many computers?
+
 Did they provide their own?
+
 How long did the show go?
 
 
