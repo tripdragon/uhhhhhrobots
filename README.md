@@ -9,9 +9,7 @@ So long as there is no large amount of soldering.
 Or we can use these questions to formulate a future event instead and give ourselves a better stretch of time to organize properly.
 
 #Start
-Discussed previous show was a budget of $300
-
-What was the head count?
+Discussed previous show was a budget of $300What was the head count?
 
 How many computers?
 
