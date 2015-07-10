@@ -67,4 +67,4 @@ Do we care to promote?
 #History recording:
 Social Media. Photos, could be done by the social media person. Expected time frame they should stay?
 
-
+What is the meaning of Robot life?
